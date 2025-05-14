@@ -32,15 +32,9 @@ O Tsuru é um dos origamis mais tradicionais e icônicos da cultura japonesa, si
 
 1. Dobre as abas laterais do quadrado em direção à linha central, formando um formato de pipa.
 
-   ![Passo 7](/img/7.jpeg)
-
 2. Desdobre essas abas.
 
-   ![Passo 8](/img/8.jpeg)
-
 3. Levante a aba inferior e dobre-a para cima, seguindo os vincos anteriores, formando uma aba longa e estreita.
-
-   ![Passo 9](/img/9.jpeg)
 
 ### 4. Repetição no Verso
 
@@ -49,8 +43,6 @@ O Tsuru é um dos origamis mais tradicionais e icônicos da cultura japonesa, si
 ### 5. Formação do Corpo do Tsuru
 
 1. Com o modelo na posição vertical, dobre as abas laterais em direção à linha central, formando um losango estreito.
-
-   ![Passo 11](/img/11.jpeg)
 
 2. Vire o modelo e repita no outro lado.
 
@@ -62,15 +54,11 @@ O Tsuru é um dos origamis mais tradicionais e icônicos da cultura japonesa, si
 
 3. Ajuste a outra ponta inferior para formar a cauda.
 
-   ![Passo 13, 14, 15](/img/13,14,15.jpeg)
-
 ### 7. Finalização
 
 1. Abra cuidadosamente as asas para dar volume ao Tsuru.
 
 2. Ajuste as dobras conforme necessário para obter a forma desejada.
-
-   ![Passo 16, 17](/img/16,17.jpeg)
 
 ## 📺 Referência
 
